@@ -25,7 +25,7 @@ I’m writing regarding my TDS account associated with the Mooresville, NC servi
 1. **Written confirmation** that my account is closed with a **$0.00 balance**.  
 2. **Confirmation** that all returned equipment has been received and my account reflects no pending obligations.  
 3. **Consideration of a goodwill check** reflecting my time spent due to process errors/miscommunication:  
-   - 8 hours × $150/hr = **$1,050.00** (includes two extra hours for social media campaign to get a response or apology).  
+   - 8 hours × $150/hr = **$1,200.00** (includes two extra hours for social media campaign to get a response or apology).  
 4. **Review of the August 18, 2025 call recording** in which the representative states the balance and status noted above.  
 
 ---
