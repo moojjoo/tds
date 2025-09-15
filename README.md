@@ -16,17 +16,16 @@ I’m writing regarding my TDS account associated with the Mooresville, NC servi
 - On **August 18, 2025**, your offshore representative confirmed on a recorded call that my account balance was **$0.00** and that the account was resolved/closed.  
 - Despite that assurance, I have spent significant time addressing follow-up items related to returning equipment and clarifying the account status.  
 - I’ve attached my letter detailing the sequence of events and the equipment return.  
-- My professional hourly rate is **$150.00**, and I have already spent **five (5) hours** dealing with this matter.  
+- My professional hourly rate is **$150.00**, and I have already spent **eight (8) hours** dealing with this matter, which would Total **$1,200.00**.  
 
 ---
 
 ## What I’m Requesting
 
-1. **Written confirmation** that my account is closed with a $0.00 balance.  
+1. **Written confirmation** that my account is closed with a **$0.00 balance**.  
 2. **Confirmation** that all returned equipment has been received and my account reflects no pending obligations.  
-3. **Consideration of a goodwill credit or reimbursement** reflecting my time spent due to process errors/miscommunication:  
-   - 5 hours × $150/hr = **$750.00**  
-   - 7 hours × $150/hr = **$1,050.00** (includes two extra hours for social media campaign to get a response or apology).  
+3. **Consideration of a goodwill check** reflecting my time spent due to process errors/miscommunication:  
+   - 8 hours × $150/hr = **$1,050.00** (includes two extra hours for social media campaign to get a response or apology).  
 4. **Review of the August 18, 2025 call recording** in which the representative states the balance and status noted above.  
 
 ---
