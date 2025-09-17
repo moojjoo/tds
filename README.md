@@ -62,4 +62,4 @@ I appreciate your attention and a swift resolution. If you need any additional i
 
 **Sincerely,**  
 **Robert Dannelly, Jr.**  
-*U.S. Army*
+*Veteran U.S. Army 82nd Airborne*
